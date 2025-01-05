@@ -1,2 +1,2 @@
 # cumple
-feliz cumpleaños para algien especial
+feliz cumpleaños para alguien especial
